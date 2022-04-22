@@ -18,4 +18,4 @@ Most of my time is spent thinking about cello and combinatorics in some capacity
 [Cello](https://www.youtube.com/channel/UChFDtgjPhF1qtTLd49Jt-6Q) 
 
 
-
+The best way to contact me is by email at maludwig15@gmail.com
